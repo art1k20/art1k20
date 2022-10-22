@@ -1,6 +1,6 @@
 
 # 💫 About Me:
-18 y.o.<br>KPI IPT Applied Mathematics student <br>
+<br>KPI IPT Applied Mathematics student <br>
 
 
 ## 🌐 Socials:
